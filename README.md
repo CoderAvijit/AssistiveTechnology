@@ -1,4 +1,4 @@
-Vibratory communicator is basically a type of Assistive Technology for differently abled.
+Assitive Technology named as Vibratory communicator is basically a type of Assistive Technology for differently abled.
 It is designed for peoples with dis ability Deaf.Which is designed by us.
 Our daily life’s most important organs are senses.
 As a Human Being sense organs are very important for us as they allow us to perceive the world in which we live. 
